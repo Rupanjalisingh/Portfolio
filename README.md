@@ -1,1 +1,1 @@
-To visit click on the link https://irupanjali.github.io/Portfolio/
+To visit click on the link https://rupanjalisingh.github.io/Portfolio/
